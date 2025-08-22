@@ -1,4 +1,4 @@
-# [souzavn05]<img src="https://media0.giphy.com/media/v1.Y2lkPTZjMDliOTUyOGU4endmMjdubGgzOWd0cm0ycjdzNXdlZHkxNXk5Y3J4eXc0b3VpbyZlcD12MV9naWZzX3NlYXJjaCZjdD1n/pNn4hlkovWAHfpLRRD/giphy-downsized.gif" width="300px">
+# [souzavn05] <img src="https://25.media.tumblr.com/82356948fe65d3eecb6279511810133a/tumblr_mfa1joeYNi1s0t989o1_500.gif" width="300px">
 
 Eu sou <strong>Vinícius Souza Tavares</strong>, <strong>Tenho 20 anos e to cursando o ads no SENAC.</strong> 👨🏻‍💻 
 
