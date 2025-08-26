@@ -1,4 +1,4 @@
-# souzavn05 <img src="https://25.media.tumblr.com/82356948fe65d3eecb6279511810133a/tumblr_mfa1joeYNi1s0t989o1_500.gif" width="240px">
+# souzavn05 <img src="https://25.media.tumblr.com/82356948fe65d3eecb6279511810133a/tumblr_mfa1joeYNi1s0t989o1_500.gif" width="200px">
 
 Eu sou <strong>Vinícius Souza Tavares</strong>, <strong>Tenho 20 anos e to cursando o ads no SENAC.</strong> 👨🏻‍💻 
 
